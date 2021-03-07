@@ -78,3 +78,9 @@ https://www.linkedin.com/in/yulia-buibarova-3162081a8/
 
 + English (Intermediate)
 
+## ADDITIONAL INFORMATION
+
+***
+
+I'm trying to find a company where i can develop my programming skills and create amazing things for the web space.
+
